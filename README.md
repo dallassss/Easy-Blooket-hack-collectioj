@@ -1,2 +1,2 @@
-# Easy-Blooket-hack-collectioj
-Easy Blooket hacks
+# Easy-Blooket-hack-collection
+Easy Blooket hacks i've either found or made
